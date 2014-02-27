@@ -1,4 +1,7 @@
 nongbaibai
 ==========
 more detail:
-http://nongbaibai.com/
+qq:1262453330
+blog:http://nongbaibai.com/
+
+
